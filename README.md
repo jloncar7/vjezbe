@@ -1,1 +1,1 @@
-# vjezbe
+Mjesto za vjezbe iz WA.
